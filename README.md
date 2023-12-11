@@ -8,7 +8,7 @@
 
 🎓 I just participated in a Data Analyst bootcamp with Le Wagon. 
 
-🧠 Loving learning new things! I have been accumulating experience in the world of Higher education after working on events and trade for years.
+🧠 Loving learning new things! I have been accumulating experience in the world of Higher education after working on events and trade for years. I decided it was time for me to move on in a new universe.
 
 
 ## :zap: **What I learned** :
